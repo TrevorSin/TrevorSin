@@ -1,4 +1,6 @@
-## Hi there 👋
+## ──★ ˙🍓 ̟!!
+
+   Helloo (๑ᵔ⤙ᵔ๑)
 
 <!--
 **TrevorSin/TrevorSin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
